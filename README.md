@@ -6,3 +6,7 @@ Felütjük a tojásokat, kicsit felverjük, majd hozzáadjuk a lisztet.
 Apránként hígítjuk a tejjel és a vízzel, csipet sóval ízesítjük.
 Az olajat is hozzáadjuk.
 Forró serpenyőbe öntünk annyi tésztát, hogy ne legyen túl vastag a palacsinta, majd mindkét oldalát pirosra sütjük.
+
+Elkészítési tipp
+
+A palacsintát tölthetjük túróval, lekvárral, pudinggal, mogyorókrémmel, kakaóporral, fahéjjal, dióval, mákkal, készíthetünk belőle előételt kapros, sós, túrós töltelékkel.
