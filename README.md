@@ -2,4 +2,4 @@
 # Névsor
 - Horváth Gergő
 - Szalai Árpád Bátor
-- Gere-Kovács Dávid
+- Gere Kovács Dávid
